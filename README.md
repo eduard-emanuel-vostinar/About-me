@@ -6,7 +6,7 @@ My experience in working with a wide range of people over the last years has tau
 · Resilience. 
 · Excellent time management.
 · Leadership
-· Teamwork
+· Teamwork :)
 
 My drive comes from my wishful character to help the people I encounter on my path. I believe in a set of principles, I am a man of order and routine. Everything I aim to achieve and build, I do so in order to give- share with my peers. 
 John 13:34- “A new commandment I give you: Love one another. As I have loved you, so you also must love one another. “
